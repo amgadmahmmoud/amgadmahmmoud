@@ -13,8 +13,6 @@
 <br>
 📚 Love fantasy & psychological thriller novels  
 <br>
-🎧 Improving English for my call center job  
-<br>
 🌍 Based in Egypt  
 </p>
 
